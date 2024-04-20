@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mehreens05
-- 👀 I’m interested in Programming,Graphic Designing and Ethical Hacking.
+- 👀 I’m interested in Programming Ethical Hacking.
 - 🌱 I’m currently pursuing Computer Science Degree.
 - 💞️ I’m looking to collaborate with programming fellows in order to enhance progamming skills.
 - 📫 Drop me a mail at this email @mehreens826@gmail.com ,In case, you wanna reach out to me.
